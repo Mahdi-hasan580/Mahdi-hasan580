@@ -1,7 +1,5 @@
 ### It"s 👋, MAHDI HASAN SHUVO
 
-[![image](https://user-images.githubusercontent.com/98658558/155743688-1db2e110-aeb6-4102-b175-d3e354b78a8d.png)](https://scontent.fdac1-1.fna.fbcdn.net/v/t39.30808-6/283190730_2637813853020295_7741640198565504353_n.jpg?stp=dst-jpg_p960x960&_nc_cat=109&ccb=1-7&_nc_sid=e3f864&_nc_eui2=AeE4xTKHYfi9XDtwWoDpYJqNDyuTwOQubQ8PK5PA5C5tD0lYdXGZS77IOqxGyYsn3Xzhgmy3Pd4xRI5Z7EUzkrp0&_nc_ohc=X_mryNp8ayoA
-X9Lp1vo&_nc_zt=23&_nc_ht=scontent.fdac1-1.fna&oh=00_AT_Q_fGtnQhFwOvk5FU7TmXiHWq9cIQrAL3TXXyNSJ7sdg&oe=628E8F31)
 
 ![Study IN Class 10](https://scontent.fdac1-1.fna.fbcdn.net/v/t39.30808-6/272687253_2541397805995234_6592263027657807859_n.jpg?_nc_cat=100&ccb=1-5&_nc_sid=e3f864&_nc_eui2=AeFLgT5GfXI_9xZoaF7pA9rklY4QYk-QdD2VjhBiT5B0PVQ8_dn68qDZ18iT1F1kJK9B5lxZYj6cXtw7Q6IXF-VY&_nc_ohc=S2iuhlO4ONYAX9d_j9i&_nc_zt=23&_nc_ht=scontent.fdac1-1.fna&oh=00_AT9aLbLHq1ifdOPW2oofwzKPgQPZZu9KvvkruC9mGzdKag&oe=6209F422)
 
